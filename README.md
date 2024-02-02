@@ -14,7 +14,7 @@ Pra quem vou perguntar se quer café, agora de manhã? Ou falar que meu café te
 
 Mas isso mais cedo ou mais tarde iria acontecer, pois não nascemos fixos em um lugar e temos que evoluir em todos os sentidos, e as nossas vidas são repletas de mudanças, e mudanças são sempre bem vindas, não importa quais sejam.
 
-Gostaria muito de ter tipo a oportunidade de ter te conhecido antes, pois você é sensacional.
+Gostaria muito de ter tido a oportunidade de ter te conhecido antes, pois você é sensacional.
 Mas pude estar conhecendo você melhor e vendo a garota(mulher) incrível que você é! Esse seu jeito meio discreto e as vezes quando você dá uma de durona da para ver que você é forte, mas no fundo dos seus olhos dá para ver a garota simples, frágil(no bom sentido) e delicada que você é.
 Não sei porque mas esse seu jeito de ser me pegou muito, me despertava certa curiosidade em saber mais, e tentar te entender. Quando conversamos tinha vezes que ficava fascinado e só apreciando o momento. E não sei porque, mas me sentia muito seguro de falar sobre mim, minha vida  para você, tinha um tipo de segurança me sentia a vontade.
 
@@ -27,10 +27,13 @@ Como no dia que inventei de fazer marshmalow quente com fogo lá no balcão(imag
 Ou quando diria principalmente fazíamos aqueles vídeos(que vc não gostava muito de fazer), mas sempre inventava alguma coisa para estar fazendo, as vezes meio absurdas mas fazia lá, pois gostava de ver o sorriso em seu rosto(me cativava muito), até das minhas bobeiras você dava risada.
 
 Peço até desculpa por isso se eu passei do ponto alguma vez, mas acho que você conseguiu perceber como é o meu jeito de ser, principalmente com quem tenho uma intimidade a mais, gosto de estar sempre sorrindo e ver as pessoas a minha volta bem e felizes junto comigo.
+E nao vou mentir, teve muitos dias que fui para a loja só para te ver, pois gosto muito de você e te acho sensacional, volto a dizer. 
+Obrigado pelos momentos que você me ajudou, em dias quando eu estava meio pra baixo ou bravo com trabalho, vc me fez sorrir e me sentir melhor.
 
-Gosto muito de você e te acho sensacional, volto a dizer. Obrigado pelos momentos que você me ajudou, em dias quando eu estava meio pra baixo ou bravo com trabalho, vc me fez sorrir e me sentir melhor.
 
-Acho que vou virar escritor, gostei de fazer isso. Agora tenho quatro perguntas para fazer e depois estarei aguardando uma resposta, não sei se vc vai me responder ou quando, mas estarei aguardando, independentemente.
+Acho que vou virar escritor, gostei de fazer isso. 
+
+Agora tenho quatro perguntas para fazer e depois estarei aguardando uma resposta, não sei se vc vai me responder ou quando, mas estarei aguardando, independentemente.
 
 pergunta 1:
 Voce compraria meu livro?
@@ -39,6 +42,7 @@ Voce compraria meu livro?
 Mas enfim voltando ao assunto, só tenho o que te desejar muito sucesso Brunaaaa, você como profissional foi uma pessoa sensacional e mandava muito bem, com um ótimo raciocínio que até me superava às vezes. (Você é extremamente inteligente!).
 
 Mas peço que vc siga atrás de seus objetivos, tipo estávamos conversando esses dias e caso você ainda não tenha feito, estabeleça um, de prioridade a você e a sua pessoa, pois você tem muito potencial de ser uma grande mulher e conseguir conquistar o que quiser. Basta ter foco e dedicação. Não se apegue as coisas e nem deixe ninguém jamais estabelecer metas para vc, te impor ordens ou  estabelecer planos para você.
+
 Pergunta 2: Você vai estabelecer seus objetivos?
 Você é forte, inteligente, legal e extremamente bonita é claro, jamais tenha medo de ficar sozinha pois vc é uma pessoas fenomenal.
 
