@@ -4,7 +4,7 @@
 Bom aqui é o André falando, obviamente né. Ia Escrever isso a mão mas muito provavelmente você não entenderia minha letra, rsrsrss.
 
 Vim aqui escrever essa mensagem, pois não sei se eu iria conseguir conviver com o fato que eu poderia ter falado isso e não falei.
-Mas enfim… Bom não me leve a mal e eu sei que você tem namorado e tudo, mas escrevendo isso aqui como um grande amigo e com meus sentimentos aqui.(pensei que nunca fosse fazer isso).
+Mas enfim… Bom não me leve a mal e eu sei que você tem namorado e tudo, mas escrevendo isso aqui de mim para você como um grande amigo e com meus sentimentos aqui.(pensei que nunca fosse fazer isso).
 
 Costumo dizer para não levar as coisas para o coração, mas eu acabei pecando nesse ponto e levei. 
 
