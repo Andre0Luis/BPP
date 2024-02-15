@@ -1,5 +1,6 @@
 # BPP
-
+Acho que vc foi curiosa e chegou aqui, então meus Parabéns!!!
+Escrevi isso no dia que descobri que você ia embora, pensei em apagar depois, mas ficou Legal, pelo menis é o que eu acho, mas enfim...
 
 Bom aqui é o André falando, obviamente né. Ia Escrever isso a mão mas muito provavelmente você não entenderia minha letra, rsrsrss.
 
